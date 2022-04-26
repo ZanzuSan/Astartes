@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZanzuSan
-- 👀 I’m interested in IT, Development
+- 👀 I’m interested in IT, Development, Networking
 - 🌱 I’m currently learning IT support
 - 💞️ I’m looking to collaborate on Anything about IT, yes, ANYTHING!
 - 📫 How to reach me ...
